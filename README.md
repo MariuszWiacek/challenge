@@ -2,10 +2,10 @@
 
 ## Description
 
-1.*Optimalization of search engines for marketing company*
-2.*Increase visibility in internet websites*
-3.*find righ customers*
-4.*maximize profits*
+1. *Optimalization of search engines for marketing company*
+2. *Increase visibility in internet websites*
+3. *find righ customers*
+4. *maximize profits*
 
 ## Table of Contents (Optional)
 
