@@ -4,8 +4,8 @@
 
 1. *Optimalization of search engines for marketing company*
 2. *Increase visibility in internet websites*
-3. *find righ customers*
-4. *maximize profits*
+3. *Find right customers*
+4. *Maximize profits*
 
 ## Table of Contents (Optional)
 
